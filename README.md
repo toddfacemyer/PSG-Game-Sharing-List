@@ -1,3 +1,11 @@
+# All Hype
+
+## All Willing
+- Apex Legends
+- Ghost Recon Wildlands
+- Titanfall 2
+- Hunt: Showdown
+
 # Mac
 
 ## Hype
